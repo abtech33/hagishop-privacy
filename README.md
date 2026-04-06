@@ -1,0 +1,1 @@
+# hagishop-privacy
